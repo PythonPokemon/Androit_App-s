@@ -1,2 +1,2 @@
 Hier können Firmen und andere interessenten sich einen einblick über meine App's verschaffen, indem diese runtergeladen und auf Androit getestet werden.
-Ich wünsche viel spass dabei:-).
+Ich wünsche viel spass dabei:-)..
